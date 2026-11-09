@@ -6,6 +6,9 @@
 
 > Наполегливо прошу переглянути вміст цієї інструкції та дотримуватись її вказівок. Перед тим як діяти, прочитайте все.
 
+[Посібник у Steam із першої гри (натисніть)](https://steamcommunity.com/sharedfiles/filedetails/?id=3834933189)
+[Посібник у Steam із Warlords (натисніть)](https://steamcommunity.com/sharedfiles/filedetails/?id=3834994076)
+[Посібник у Steam із Beyond the Sword (натисніть)](https://steamcommunity.com/sharedfiles/filedetails/?id=3834998143)
 
 ## Зміст
 
